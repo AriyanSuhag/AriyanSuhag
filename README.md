@@ -16,5 +16,5 @@ I'm constantly working on small projects to practice and apply what I'm learning
 I'm passionate about becoming a skilled developer and contributing to innovative projects. I'm eager to connect with fellow beginners, experienced developers, mentors and anyone who shares a love for coding.
 
 🌍 Let's Connect:
-📧 You can reach out to me at suhaghossain105@gmail.com
-🔗 Connect with me on LinkedIn [Link to your LinkedIn profile].
+📧 You can reach out to me at suhaghossain102@gmail.com
+🔗 Connect with me on LinkedIn www.linkedin.com/in/suhag-hossain-87872b298.
